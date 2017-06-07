@@ -36,3 +36,4 @@ Ban quản trị tuyệt đối KHÔNG có nhiệm vụ bắt buộc phải hỗ
 
 Thank
 
+"  Các AD không có nhiệm vụ phải trả lời các bạn qua tin nhắn hay mail.... Chỉ là xây dựng lên một cộng đồng cho anh em trao đổi "
