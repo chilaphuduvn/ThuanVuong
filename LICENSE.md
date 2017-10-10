@@ -37,3 +37,9 @@ Ban quản trị tuyệt đối KHÔNG có nhiệm vụ bắt buộc phải hỗ
 Thank
 
 "  Các AD không có nhiệm vụ phải trả lời các bạn qua tin nhắn hay mail.... Chỉ là xây dựng lên một cộng đồng cho anh em trao đổi "
+
+5. ID tải app cho anh em trong GR
+   1. ID chung : https://www.facebook.com/media/set/?set=oa.1956089914603170&type=3
+   
+   2. ID store us và vn : http://textuploader.com/d4o7a/raw
+   
