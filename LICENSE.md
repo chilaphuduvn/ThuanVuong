@@ -43,3 +43,5 @@ Thank
    
    2. ID store us và vn : http://textuploader.com/d4o7a/raw
    
+   3. ID tải app chỉnh sửa ảnh : https://www.facebook.com/groups/AppleTeam.Group/permalink/1992094314336063/
+   
